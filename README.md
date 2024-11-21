@@ -15,7 +15,8 @@ Beyond these homework assignments, my contribution to the class included being a
 ## Piazza 
 
 I stay active on piazza, happy to help other students with their questions such as:
-https://piazza.com/class/lzmw310nhiy5rz/post/60_f2 helping with code questions. 
+https://piazza.com/class/lzmw310nhiy5rz/post/60_f2 
+
 https://piazza.com/class/lzmw310nhiy5rz/post/58_f6
 
 Willing to ask the "dumb" questions such as asking for help with the anti-derivative homework here https://piazza.com/class/lzmw310nhiy5rz/post/117_f2
@@ -25,11 +26,13 @@ https://piazza.com/class/lzmw310nhiy5rz/post/57_f6
 
 Often I will post a note or two I found useful from office hours:
 https://piazza.com/class/lzmw310nhiy5rz/post/67
+
 https://piazza.com/class/lzmw310nhiy5rz/post/94
 
 
 And occasionally just share fun videos or extra info I think other students and the instructor would find interesting such as these examples:
 
 https://piazza.com/class/lzmw310nhiy5rz/post/104
+
 https://piazza.com/class/lzmw310nhiy5rz/post/105
 
