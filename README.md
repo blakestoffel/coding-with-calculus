@@ -10,11 +10,13 @@ This class examined the fundamentals of calculus following primarily the first s
 
 ## Contributions
 
-Beyond these homework assignments, my contribution to the class included being an active participant in Office Hours and contributions to Piazza. 
+Beyond these homework assignments, my contribution to the class included being a very active (and hopefully helpful and funny) participant in Office Hours and contributions to Piazza. 
 
 ## Piazza 
 
-I stay active on piazza, happy to help other students with their questions such as:
+Throughout the course, I tried to stay active and reponsive on Piazza. 
+
+I was always happy to help other students with their questions such as:
 
 https://piazza.com/class/lzmw310nhiy5rz/post/60_f2 
 
