@@ -1,6 +1,7 @@
 # coding-with-calculus
 A compilation of my contributions to CSBP4830 Coding With Calculus 
 
+https://github.com/blakestoffel/coding-with-calculus.git
 
 ## Overview:
 
